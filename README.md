@@ -12,10 +12,10 @@
 - 👯 I’m looking to collaborate on **tech for environment & community**
 - 💬 Ask me about **web dev, REST API, mobile apps**
 - 📫 Contact me via:  
-  - 📱 WhatsApp: [Chat via WhatsApp](https://wa.me/6281234567890)  
+  - 📱 WhatsApp: [Chat via WhatsApp](https://wa.me/6282313973997)  
   - 📷 Instagram: [@](https://instagram.com/)  
   - 👤 Facebook: [](https://facebook.com/)  
-  - ✉️ Email: **Alif@gmail.com**
+  - ✉️ Email: **Aliffahmi1500@gmail.com**
 
 ---
 
